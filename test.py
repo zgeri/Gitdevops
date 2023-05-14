@@ -10,3 +10,15 @@ print("56sdf7")
 dsfsdf
 
 
+fgdfg
+df
+geri2dfg
+dg
+d
+geri2dg fd
+geri2drg
+erg
+er
+geri2erg
+erg
+er
